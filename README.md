@@ -1,0 +1,2 @@
+# fuji-mobile.com
+Outsource
